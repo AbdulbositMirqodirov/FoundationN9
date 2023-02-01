@@ -1,1 +1,1 @@
-Ushbu code FoundationN9 uchun yozildi
+Ushbu code FoundationN9 uchun yozildi.
